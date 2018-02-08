@@ -1,1 +1,1 @@
-# rookie
+# rookie mayoral
